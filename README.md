@@ -1,1 +1,1 @@
-# yy.buhaosou.com
+# apphxs.buhaosou.com
