@@ -1,1 +1,1 @@
-# apphxs.github.io
+# yy.buhaosou.com
